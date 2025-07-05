@@ -34,7 +34,12 @@ El hombre la observaba en silencio, sabiendo que muy pronto todo cambiaría para
 En ese momento se escuchó un leve crujido de pasos al fondo de la cueva.  
 Adam se giró bruscamente, con el corazón golpeando en su pecho como un tambor.  
 Las sombras temblaban en las paredes mientras los símbolos parecían moverse con ellas.  
-Por un instante, recordó haber estado allí antes, pero no sabía cuándo ni con quién.
+Por un instante, tuvo la impresión haber estado allí antes, como un deja vu.
+
+Sintió un escalofrío recorrerle la espalda, como si algo hubiera despertado dentro de él.
+El resplandor dejó una imagen grabada en su mente: una figura gritando en un idioma desconocido.
+Intentó alejar la visión pero el eco del grito lo seguía, vibrando en lo más profundo de su ser.
+Al abrir los ojos, estaba solo. El extraño había desaparecido sin dejar rastro alguno.
 
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un

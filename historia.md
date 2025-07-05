@@ -49,6 +49,7 @@ Las paredes susurraban antiguas palabras, resonando con la marca en su brazo.
 Un pulso misterioso parecía latir en el suelo, sincronizado con su respiración.  
 El mundo conocido se desvanecía, dando lugar a un misterio que solo él podía enfrentar. 
 
+
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
 color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo

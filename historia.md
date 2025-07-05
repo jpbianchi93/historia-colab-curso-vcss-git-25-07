@@ -24,7 +24,11 @@ más.
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes
 había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás
-seguro… por ahora”, murmuró el hombre, cerrando la entrada.
+seguro… por ahora”, murmuró el hombre, mientras corría una roca para cerrar la entrada.
+Un leve murmullo resonaba entre las paredes húmedas, como si la cueva respirara.
+Ella se acercó a una de las inscripciones, y al tocarla, un resplandor tenue iluminó el sitio.
+No entendía por qué, pero sentía que ese lugar tenía algo que ver con su pasado.
+El hombre la observaba en silencio, sabiendo que muy pronto todo cambiaría para ambos.
 
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un

@@ -4,7 +4,12 @@
 El sol se filtraba entre las cortinas raídas de la vieja cabaña. Afuera, el
 bosque murmuraba con vida mientras Adam se incorporaba lentamente, con el cuerpo
 entumecido y la mente en blanco. No recordaba cómo había llegado allí, ni
-siquiera quién era del todo.
+siquiera su propio nombre.
+
+Exhausto de vagar por el frío y lúgubre bosque tratando de recuperar sus
+recuerdos, está a punto de darse por vencido, Adam cree que este será su fin,
+que ya no resistirá, pero el afán de reencontrarse a sí mismo lo alienta
+a recorrer un último tramo, y en entonces cuando deslumbra un rastro.
 
 ## Capítulo 02: Huellas y secretos
 El suelo húmedo estaba plagado de pisadas. Algunas eran suyas, otras no.

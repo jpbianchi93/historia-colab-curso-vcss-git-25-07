@@ -43,7 +43,12 @@ como si respondiera a un vínculo antiguo grabado en su propia carne.
 Una ráfaga de viento helado emergió desde la abertura, erizándole toda la piel,
 del otro lado, una luz azul flotaba en el aire, danzando al ritmo de un pulso tenue,
 los símbolos en su brazo comenzaron a brillar con la misma intensidad fantasmal,
-Adam tragó saliva, sabiendo que al cruzar el umbral, ya nada volvería a ser igual.
+lentamente, por arte de magia y en su interior algo brillaba.
+Se abrio la puerta y en su interior se encontraba un cofre tan brillante que,
+Adam se asombro de lo que estaba viendo, Y como era de esperar el cofre tenia
+una cerradura con una forma de una figura encapuchada.Entonces Adam marco
+su ubicacion en el mapa y fue en busca de esa figura que habia visto previamente
+en algun momento. 
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un

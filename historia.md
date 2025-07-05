@@ -23,8 +23,12 @@ más.
 
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes
-había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás
-seguro… por ahora”, murmuró el hombre, cerrando la entrada.
+había símbolos y dibujos que despertaban algo en su memoria. “Aquí corrés peligro”, leyó el pobre hombre, cerrandose la entrada.
+
+En ese momento se escuchó un leve crujido de pasos al fondo de la cueva.  
+Adam se giró bruscamente, con el corazón golpeando en su pecho como un tambor.  
+Las sombras temblaban en las paredes mientras los símbolos parecían moverse con ellas.  
+Por un instante, recordó haber estado allí antes, pero no sabía cuándo ni con quién.
 
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un

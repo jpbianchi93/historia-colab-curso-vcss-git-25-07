@@ -47,8 +47,11 @@ lentamente, por arte de magia y en su interior algo brillaba.
 Se abrio la puerta y en su interior se encontraba un cofre tan brillante que,
 Adam se asombro de lo que estaba viendo, Y como era de esperar el cofre tenia
 una cerradura con una forma de una figura encapuchada.Entonces Adam marco
-su ubicacion en el mapa y fue en busca de esa figura que habia visto previamente
-en algun momento. 
+su ubicacion en el mapa y decidió ir en busca de esa figura que había visto previamente.
+Con cautela, Adam cerró el cofre, sintiendo que algo invisible lo observaba desde las sombras.  
+El eco de sus pasos resonó en el pasillo mientras avanzaba hacia donde creía encontrar a la figura.  
+La luz azul parpadeaba, marcando el camino con un ritmo casi hipnótico e inquietante.  
+Cada símbolo en su brazo latía con fuerza, guiándolo hacia un destino que aún desconocía.  
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un

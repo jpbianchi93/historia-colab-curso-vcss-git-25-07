@@ -43,12 +43,15 @@ como si respondiera a un vínculo antiguo grabado en su propia carne.
 Una ráfaga de viento helado emergió desde la abertura, erizándole toda la piel,
 del otro lado, una luz azul flotaba en el aire, danzando al ritmo de un pulso tenue,
 los símbolos en su brazo comenzaron a brillar con la misma intensidad fantasmal,
-Adam tragó saliva, sintiendo que el peso del destino lo empujaba a atravesar ese umbral.
-El frío viento lo envolvió al dar el primer paso dentro de la oscuridad brillante.  
-Las paredes susurraban antiguas palabras, resonando con la marca en su brazo.  
-Un pulso misterioso parecía latir en el suelo, sincronizado con su respiración.  
-El mundo conocido se desvanecía, dando lugar a un misterio que solo él podía enfrentar. 
-
+lentamente, por arte de magia y en su interior algo brillaba.
+Se abrio la puerta y en su interior se encontraba un cofre tan brillante que,
+Adam se asombro de lo que estaba viendo, Y como era de esperar el cofre tenia
+una cerradura con una forma de una figura encapuchada.Entonces Adam marco
+su ubicacion en el mapa y decidió ir en busca de esa figura que había visto previamente.
+Con cautela, Adam cerró el cofre, sintiendo que algo invisible lo observaba desde las sombras.  
+El eco de sus pasos resonó en el pasillo mientras avanzaba hacia donde creía encontrar a la figura.  
+La luz azul parpadeaba, marcando el camino con un ritmo casi hipnótico e inquietante.  
+Cada símbolo en su brazo latía con fuerza, guiándolo hacia un destino que aún desconocía.  
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un

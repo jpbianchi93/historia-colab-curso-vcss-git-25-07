@@ -43,7 +43,11 @@ como si respondiera a un vínculo antiguo grabado en su propia carne.
 Una ráfaga de viento helado emergió desde la abertura, erizándole toda la piel,
 del otro lado, una luz azul flotaba en el aire, danzando al ritmo de un pulso tenue,
 los símbolos en su brazo comenzaron a brillar con la misma intensidad fantasmal,
-Adam tragó saliva, sabiendo que al cruzar el umbral, ya nada volvería a ser igual.
+Adam tragó saliva, sintiendo que el peso del destino lo empujaba a atravesar ese umbral.
+El frío viento lo envolvió al dar el primer paso dentro de la oscuridad brillante.  
+Las paredes susurraban antiguas palabras, resonando con la marca en su brazo.  
+Un pulso misterioso parecía latir en el suelo, sincronizado con su respiración.  
+El mundo conocido se desvanecía, dando lugar a un misterio que solo él podía enfrentar. 
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un

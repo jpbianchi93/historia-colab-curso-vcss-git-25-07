@@ -41,6 +41,12 @@ El resplandor dejó una imagen grabada en su mente: una figura gritando en un id
 Intentó alejar la visión pero el eco del grito lo seguía, vibrando en lo más profundo de su ser.
 Al abrir los ojos, estaba solo. El extraño había desaparecido sin dejar rastro alguno.
 
+Al darse vuelta descubre que el resplandor es ahora aún más intenso.
+Un impulso inexplicable lo guiaba a acercarse cada vez más.
+Cada paso lo acercaba más a una verdad sepultada, mientras el eco del grito seguía latiendo dentro de él. 
+Al fondo, donde la oscuridad era más densa cayó en un sueño profundo.
+
+
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un
 rostro que le suplicaba. Adam despertaba sudando, con el eco de un nombre en los

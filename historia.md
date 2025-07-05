@@ -34,7 +34,12 @@ labios que no lograba recordar del todo.
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con
 temor al ver una marca en el brazo de Adam, como si reconociera en ella algo
-peligroso. “Eso no debería estar ahí…”, murmuró.
+peligroso. “Otra vez mas”, murmuró en un suave susurro, "Como aquella vez".
+
+Los recuerdos rotos volvieron con la fuerza de mil caballos, el dolor que le
+produjo intentar controlar su panico se volvio abrumador. La tension se volvio 
+fisica entre Adam y el extraño, las miredas esquivas y la sequedad de la garganta 
+de Adam evitaron cualquier tipo de conversacion, hasta que con una voz suave el extraño hablo.
 
 ## Capítulo 08: El umbral prohibido
 Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en

@@ -23,7 +23,13 @@ más.
 
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes
-había símbolos y dibujos que despertaban algo en su memoria. “Aquí corrés peligro”, leyó el pobre hombre, cerrandose la entrada.
+había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás
+seguro… por ahora”, murmuró el hombre, mientras corría una roca para cerrar la entrada.
+
+Un leve murmullo resonaba entre las paredes húmedas, como si la cueva respirara.
+Ella se acercó a una de las inscripciones, y al tocarla, un resplandor tenue iluminó el sitio.
+No entendía por qué, pero sentía que ese lugar tenía algo que ver con su pasado.
+El hombre la observaba en silencio, sabiendo que muy pronto todo cambiaría para ambos.
 
 En ese momento se escuchó un leve crujido de pasos al fondo de la cueva.  
 Adam se giró bruscamente, con el corazón golpeando en su pecho como un tambor.  

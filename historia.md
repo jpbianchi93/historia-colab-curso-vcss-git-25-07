@@ -38,11 +38,12 @@ peligroso. “Eso no debería estar ahí…”, murmuró.
 
 ## Capítulo 08: El umbral prohibido
 Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en
-lo profundo del bosque. Al rozarla, un símbolo en su brazo se encendió y la puerta respondió con un crujido profundo.
-Adam se quedó inmóvil ante la abertura, donde un aire espeso y frío comenzaba a filtrarse.  
-Sus dedos temblaban, pero la luz lo atraía con una fuerza que no podía explicar.  
-El bosque quedó atrás cuando cruzó el umbral, dejando solo silencio tras de sí.  
-Adentro, el suelo crujía como si respirara, y los símbolos brillaban bajo sus pies.
+lo profundo del bosque. Al tocarla, esta tembló suavemente y comenzó a abrirse,
+como si respondiera a un vínculo antiguo grabado en su propia carne.
+Una ráfaga de viento helado emergió desde la abertura, erizándole toda la piel,
+del otro lado, una luz azul flotaba en el aire, danzando al ritmo de un pulso tenue,
+los símbolos en su brazo comenzaron a brillar con la misma intensidad fantasmal,
+Adam tragó saliva, sabiendo que al cruzar el umbral, ya nada volvería a ser igual.
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un

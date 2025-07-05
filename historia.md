@@ -6,6 +6,11 @@ bosque murmuraba con vida mientras Adam se incorporaba lentamente, con el cuerpo
 entumecido y la mente en blanco. No recordaba cómo había llegado allí, estaba
 desorientado y se sentía como un lienzo en blanco esperando ser pintado.
 
+Se incorporó tambaleante, buscando equilibrio en un suelo cubierto de polvo y astillas.
+La cabaña tenía el aroma rancio de lo olvidado, y en una mesa encontró un cuaderno gastado.
+Las primeras páginas estaban en blanco, pero al final, en tinta roja, solo decía: "Encontrá la torre".
+No sabía qué significaba, pero esas palabras lo empujaron fuera, directo al bosque que lo observaba.
+
 Con pasos inciertos, se acercó a la única ventana, descubriendo un paisaje densamente
 arbolado. No había señales de caminos o civilización, estaba completamente aislado. 
 El aroma a tierra húmeda y pino invadía la estancia, trayendo consigo una extraña 

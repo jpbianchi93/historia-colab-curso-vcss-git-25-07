@@ -3,8 +3,13 @@
 ## Capítulo 01: El despertar
 El sol se filtraba entre las cortinas raídas de la vieja cabaña. Afuera, el
 bosque murmuraba con vida mientras Adam se incorporaba lentamente, con el cuerpo
-entumecido y la mente en blanco. No recordaba cómo había llegado allí, ni
-siquiera quién era del todo.
+entumecido y la mente en blanco. No recordaba cómo había llegado allí, estaba
+desorientado y se sentía como un lienzo en blanco esperando ser pintado.
+
+Con pasos inciertos, se acercó a la única ventana, descubriendo un paisaje densamente
+arbolado. No había señales de caminos o civilización, estaba completamente aislado. 
+El aroma a tierra húmeda y pino invadía la estancia, trayendo consigo una extraña 
+sensación de familiaridad que lo inquietaba profundamente.
 
 ## Capítulo 02: Huellas y secretos
 El suelo húmedo estaba plagado de pisadas. Algunas eran suyas, otras no.

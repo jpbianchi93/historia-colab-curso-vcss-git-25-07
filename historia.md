@@ -38,8 +38,13 @@ peligroso. “Otra vez mas”, murmuró en un suave susurro, "Como aquella vez".
 
 Los recuerdos rotos volvieron con la fuerza de mil caballos, el dolor que le
 produjo intentar controlar su panico se volvio abrumador. La tension se volvio 
-fisica entre Adam y el extraño, las miredas esquivas y la sequedad de la garganta 
-de Adam evitaron cualquier tipo de conversacion, hasta que con una voz suave el extraño hablo.
+fisica entre Adam y el extraño, las miradas esquivas y la sequedad de la garganta 
+de Adam evitaron cualquier tipo de conversacion, hasta que finalmente el extraño habló.
+
+"Estoy seguro que sabes lo que esa marca significa, solo que no quieres o no puedes
+recordarlo todavía", exclamó el extraño. En ese momento Adam sintió un escalofrío recorriendo
+por su cuerpo y pensó "Este hombre estará intentando engañarme? tengo recuerdos vagos acerca 
+de muchas cosas, y si realmente tiene razón? y si sé que significa esta marca? debo recordarlo".
 
 ## Capítulo 08: El umbral prohibido
 Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en

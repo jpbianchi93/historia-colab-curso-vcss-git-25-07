@@ -23,7 +23,8 @@ angustia lo empujó a actuar.
 
 Corrieron entre ramas y raíces sin hablar, apenas respirando. El extraño parecía
 conocer cada sendero oculto del bosque. Adam lo seguía, entre asombro y temor, sin
-saber si iba hacia la salvación o hacia una trampa.
+saber si iba hacia la salvación o hacia una trampa. Pero algo en su instinto
+le decía que ya no había vuelta atrás.
 
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes

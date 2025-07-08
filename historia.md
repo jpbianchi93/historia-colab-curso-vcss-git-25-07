@@ -33,8 +33,12 @@ presencia lo perseguía incluso con los ojos cerrados.
 
 ## Capítulo 04: El aliado inesperado
 Cuando creyó que no saldría del bosque, una figura emergió de entre los árboles.
-"Si quieres vivir, sígueme", dijo el desconocido. Adam dudó, pero el miedo pudo
-más.
+"Si quieres vivir, sígueme", dijo el desconocido. Adam, a pesar del miedo lo siguio.
+
+Los árboles parecían cerrarse detrás de ellos, como si quisieran tragarlos en su oscuridad.  
+El desconocido avanzaba con paso firme, sin mirar atrás ni explicar nada.  
+Adam lo seguía con dificultad, esquivando raíces y ramas que arañaban su rostro.  
+Entonces, el sonido de una cascada cercana rompió el silencio y los guió hacia su destino.
 
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes

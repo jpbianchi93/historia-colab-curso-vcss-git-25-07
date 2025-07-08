@@ -4,7 +4,22 @@
 El sol se filtraba entre las cortinas raídas de la vieja cabaña. Afuera, el
 bosque murmuraba con vida mientras Adam se incorporaba lentamente, con el cuerpo
 entumecido y la mente en blanco. No recordaba cómo había llegado allí, ni
-siquiera quién era del todo.
+siquiera su propio nombre.
+
+Exhausto de vagar por el frío y lúgubre bosque tratando de recuperar sus
+recuerdos, está a punto de darse por vencido, Adam cree que este será su fin,
+que ya no resistirá, pero el afán de reencontrarse a sí mismo lo alienta
+a recorrer un último tramo, y en entonces cuando deslumbra un rastro.
+
+Se incorporó tambaleante, buscando equilibrio en un suelo cubierto de polvo y astillas.
+La cabaña tenía el aroma rancio de lo olvidado, y en una mesa encontró un cuaderno gastado.
+Las primeras páginas estaban en blanco, pero al final, en tinta roja, solo decía: "Encontrá la torre".
+No sabía qué significaba, pero esas palabras lo empujaron fuera, directo al bosque que lo observaba.
+
+Con pasos inciertos, se acercó a la única ventana, descubriendo un paisaje densamente
+arbolado. No había señales de caminos o civilización, estaba completamente aislado. 
+El aroma a tierra húmeda y pino invadía la estancia, trayendo consigo una extraña 
+sensación de familiaridad que lo inquietaba profundamente.
 
 ## Capítulo 02: Huellas y secretos
 El suelo húmedo estaba plagado de pisadas. Algunas eran suyas, otras no.
@@ -18,6 +33,7 @@ presencia lo perseguía incluso con los ojos cerrados.
 
 ## Capítulo 04: El aliado inesperado
 Cuando creyó que no saldría del bosque, una figura emergió de entre los árboles.
+
 "Si quieres vivir, sígueme", dijo el desconocido. Adam no entendía nada, pero la
 angustia lo empujó a actuar.
 
@@ -25,6 +41,11 @@ Corrieron entre ramas y raíces sin hablar, apenas respirando. El extraño parec
 conocer cada sendero oculto del bosque. Adam lo seguía, entre asombro y temor, sin
 saber si iba hacia la salvación o hacia una trampa. Pero algo en su instinto
 le decía que ya no había vuelta atrás.
+
+Los árboles parecían cerrarse detrás de ellos, como si quisieran tragarlos en su oscuridad.  
+El desconocido avanzaba con paso firme, sin mirar atrás ni explicar nada.  
+Adam lo seguía con dificultad, esquivando raíces y ramas que arañaban su rostro.  
+Entonces, el sonido de una cascada cercana rompió el silencio y los guió hacia su destino.
 
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes

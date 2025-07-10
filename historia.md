@@ -47,6 +47,11 @@ El desconocido avanzaba con paso firme, sin mirar atrás ni explicar nada.
 Adam lo seguía con dificultad, esquivando raíces y ramas que arañaban su rostro.  
 Entonces, el sonido de una cascada cercana rompió el silencio y los guió hacia su destino.
 
+Se acercaron a la cortina de agua, donde la roca temblaba levemente al contacto con sus manos.  
+El extraño murmuró unas palabras que Adam no comprendió, y un pasaje secreto se abrió.  
+Del otro lado, una tenue luz azul iluminaba paredes cubiertas de símbolos familiares.  
+Adam sintió un escalofrío recorrerle la espalda: algo en ese lugar conocía su verdadero origen.  
+
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes
 había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás

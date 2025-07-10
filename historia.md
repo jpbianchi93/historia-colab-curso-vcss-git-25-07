@@ -51,7 +51,11 @@ su ubicacion en el mapa y decidió ir en busca de esa figura que había visto pr
 Con cautela, Adam cerró el cofre, sintiendo que algo invisible lo observaba desde las sombras.  
 El eco de sus pasos resonó en el pasillo mientras avanzaba hacia donde creía encontrar a la figura.  
 La luz azul parpadeaba, marcando el camino con un ritmo casi hipnótico e inquietante.  
-Cada símbolo en su brazo latía con fuerza, guiándolo hacia un destino que aún desconocía.  
+Los símbolos en su cuerpo latían, guiándolo hacia un destino aún envuelto en misterio.
+ Avanzando hacia ella, la luz azul lo condujo por un pasaje angosto hasta una cámara oculta.
+Allí, las paredes estaban cubiertas de runas que brillaban al ritmo de su pulso. En el centro,
+suspendido en el aire, un vórtice de energía giraba lentamente un portal, la entrada viva 
+y palpitante hacia El mundo al otro lado. 
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un

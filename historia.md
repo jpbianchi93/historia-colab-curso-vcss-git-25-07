@@ -76,6 +76,8 @@ Una silueta envuelta en sombras extendía su mano hacia él, pidiéndole algo.
 Su rostro era difuso, pero la sensación de culpa lo inundaba.
 Entonces lo entendió: los sueños no eran simples fragmentos, sino advertencias.
 
+Cada noche, el bosque parecía volverse más denso, más oscuro, como si se alimentara de los recuerdos de Adam. Le mostraba fragmentos de su pasado enterrado, escenas confusas pero cargadas de una urgencia silenciosa. Eran retazos que su mente había intentado olvidar, pero que ahora emergían con fuerza, empujados por algo más allá de su voluntad. Sabía que no eran simples sueños: el bosque le hablaba, le advertía, le exigía recordar antes de que fuera demasiado tarde.
+
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con
 temor al ver una marca en el brazo de Adam, como si reconociera en ella algo

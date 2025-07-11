@@ -67,6 +67,11 @@ Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, 
 rostro que le suplicaba. Adam despertaba sudando, con el eco de un nombre en los
 labios que no lograba recordar del todo.
 
+Cerró los ojos y trató de volver a dormirse, pero las imágenes no lo dejaban en paz. 
+Una silueta envuelta en sombras extendía su mano hacia él, pidiéndole algo. 
+Su rostro era difuso, pero la sensación de culpa lo inundaba.
+Entonces lo entendió: los sueños no eran simples fragmentos, sino advertencias.
+
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con
 temor al ver una marca en el brazo de Adam, como si reconociera en ella algo

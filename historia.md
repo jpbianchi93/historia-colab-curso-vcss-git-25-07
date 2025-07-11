@@ -55,4 +55,9 @@ romper el ciclo o abrazarlo.
 La elección desató una fuerza silenciosa. La luz lo envolvió y luego, oscuridad.
 Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
 cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
-allí.
+hasta allí.
+
+Adam se levantó más rápido que otras veces. El entumecimiento aún estaba allí, pero algo era
+distinto. Sus pasos lo llevaron al rincón donde antes no había nada: ahora, había una llave oxidada
+en el suelo.Al tomarla, una visión fugaz lo sacudió: un portal, una promesa, y una traición aún sin
+saldar. El ciclo se repetía, sí, pero esta vez, algo había dejado una grieta en la rueda del olvido.

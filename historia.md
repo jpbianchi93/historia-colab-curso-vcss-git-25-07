@@ -55,4 +55,7 @@ romper el ciclo o abrazarlo.
 La elección desató una fuerza silenciosa. La luz lo envolvió y luego, oscuridad.
 Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
 cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
-allí.
+allí. Esta vez se sentía peculiar. 
+Salió a caminar en busca de respuestas. El bosque otoñal era amplio y tibio a la vez.
+Una bruma lo cegaba. Ahora estaba inmóvil ante esa inmensidad que lo atravesaba. 
+Cuando por fin logró mover su cuerpo, sintió una voz murmurando. Súbitamente múltiples voces. Misteriosamente provenían desde su interior.  

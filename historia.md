@@ -67,6 +67,10 @@ Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota,
 un rostro que le suplicaba. Adam despertaba sudando, con las imágenes ardiendo
 en su mente, como brasas que no lograba apagar.
 
+El temblor en sus manos lo obligó a incorporarse, con el corazón desbocado.
+Aún podía escuchar el susurro de aquella voz entre los árboles, llamándolo
+por un nombre que no recordaba, pero que parecía encender algo en su interior.
+
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con
 temor al ver una marca en el brazo de Adam, como si reconociera en ella algo

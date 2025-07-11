@@ -39,7 +39,28 @@ más.
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes
 había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás
-seguro… por ahora”, murmuró el hombre, cerrando la entrada.
+seguro… por ahora”, murmuró el hombre, mientras corría una roca para cerrar la entrada.
+
+Un leve murmullo resonaba entre las paredes húmedas, como si la cueva respirara.
+Ella se acercó a una de las inscripciones, y al tocarla, un resplandor tenue iluminó el sitio.
+No entendía por qué, pero sentía que ese lugar tenía algo que ver con su pasado.
+El hombre la observaba en silencio, sabiendo que muy pronto todo cambiaría para ambos.
+
+En ese momento se escuchó un leve crujido de pasos al fondo de la cueva.  
+Adam se giró bruscamente, con el corazón golpeando en su pecho como un tambor.  
+Las sombras temblaban en las paredes mientras los símbolos parecían moverse con ellas.  
+Por un instante, tuvo la impresión haber estado allí antes, como un deja vu.
+
+Sintió un escalofrío recorrerle la espalda, como si algo hubiera despertado dentro de él.
+El resplandor dejó una imagen grabada en su mente: una figura gritando en un idioma desconocido.
+Intentó alejar la visión pero el eco del grito lo seguía, vibrando en lo más profundo de su ser.
+Al abrir los ojos, estaba solo. El extraño había desaparecido sin dejar rastro alguno.
+
+Al darse vuelta descubre que el resplandor es ahora aún más intenso.
+Un impulso inexplicable lo guiaba a acercarse cada vez más.
+Cada paso lo acercaba más a una verdad sepultada, mientras el eco del grito seguía latiendo dentro de él. 
+Al fondo, donde la oscuridad era más densa cayó en un sueño profundo.
+
 
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un

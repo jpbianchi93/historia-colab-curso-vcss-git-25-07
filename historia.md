@@ -63,9 +63,9 @@ Al fondo, donde la oscuridad era más densa cayó en un sueño profundo.
 
 
 ## Capítulo 06: Fragmentos de memoria
-Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un
-rostro que le suplicaba. Adam despertaba sudando, con el eco de un nombre en los
-labios que no lograba recordar del todo.
+Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota,
+un rostro que le suplicaba. Adam despertaba sudando, con las imágenes ardiendo
+en su mente, como brasas que no lograba apagar.
 
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con

@@ -75,7 +75,26 @@ peligroso. “Eso no debería estar ahí…”, murmuró.
 ## Capítulo 08: El umbral prohibido
 Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en
 lo profundo del bosque. Al tocarla, esta tembló suavemente y comenzó a abrirse,
-como si lo reconociera.
+como si respondiera a un vínculo antiguo grabado en su propia carne.
+Una ráfaga de viento helado emergió desde la abertura, erizándole toda la piel,
+del otro lado, una luz azul flotaba en el aire, danzando al ritmo de un pulso 
+tenue,los símbolos en su brazo comenzaron a brillar con la misma intensidad 
+fantasmal, lentamente, por arte de magia y en su interior algo brillaba.
+Se abrio la puerta y en su interior se encontraba un cofre tan brillante que,
+Adam se asombro de lo que estaba viendo, Y como era de esperar el cofre tenia
+una cerradura con una forma de una figura encapuchada.Entonces Adam marco su 
+ubicacion en el mapa y decidió ir en busca de esa figura que había visto 
+previamente.
+Con cautela, Adam cerró el cofre, sintiendo que algo invisible lo observaba 
+desde las sombras. El eco de sus pasos resonó en el pasillo mientras avanzaba 
+hacia donde creía encontrar a la figura. La luz azul parpadeaba, marcando el 
+camino con un ritmo casi hipnótico e inquietante.  
+Los símbolos en su cuerpo latían, guiándolo hacia un destino aún envuelto en 
+misterio. Avanzando hacia ella, la luz azul lo condujo por un pasaje angosto 
+hasta una cámara oculta. Allí, las paredes estaban cubiertas de runas que 
+brillaban al ritmo de su pulso. En el centro, suspendido en el aire, un vórtice 
+de energía giraba lentamente un portal, la entrada viva y palpitante hacia 
+El mundo al otro lado. 
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un

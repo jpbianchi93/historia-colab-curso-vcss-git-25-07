@@ -45,7 +45,7 @@ le decía que ya no había vuelta atrás.
 Los árboles parecían cerrarse detrás de ellos, como si quisieran tragarlos en su oscuridad.  
 El desconocido avanzaba con paso firme, sin mirar atrás ni explicar nada.  
 Adam lo seguía con dificultad, esquivando raíces y ramas que arañaban su rostro.  
-Entonces, el sonido de una cascada cercana rompió el silencio y los guió hacia su destino.
+Entonces, el sonido de una cascada cercana rompió el silencio y los guió hacia una abertura oculta entre las rocas.
 
 Se acercaron a la cortina de agua, donde la roca temblaba levemente al contacto con sus manos.  
 El extraño murmuró unas palabras que Adam no comprendió, y un pasaje secreto se abrió.  

@@ -37,8 +37,9 @@ Cuando creyó que no saldría del bosque, una figura emergió de entre los árbo
 más.
 
 ## Capítulo 05: El refugio olvidado
-La cueva detrás de la cascada parecía un santuario escondido. En sus paredes
-había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás
+El extraño guió a Adam por un sendero oculto hasta llegar a una inmensa cascada. Al rodear
+el gran caudal de agua, llegaron a una cueva, la cual parecía un santuario escondido. 
+En sus paredes había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás
 seguro… por ahora”, murmuró el hombre, mientras corría una roca para cerrar la entrada.
 
 Un leve murmullo resonaba entre las paredes húmedas, como si la cueva respirara.
@@ -57,10 +58,9 @@ Intentó alejar la visión pero el eco del grito lo seguía, vibrando en lo más
 Al abrir los ojos, estaba solo. El extraño había desaparecido sin dejar rastro alguno.
 
 Al darse vuelta descubre que el resplandor es ahora aún más intenso.
-Un impulso inexplicable lo guiaba a acercarse cada vez más.
-Cada paso lo acercaba más a una verdad sepultada, mientras el eco del grito seguía latiendo dentro de él. 
-Al fondo, donde la oscuridad era más densa cayó en un sueño profundo.
-
+Un impulso inexplicable lo guiaba a acercarse cada vez más. Llegó a tocarlo con la punta de
+los dedos, y subitamente Adam despertó. El mismo sueño recurrente, una vez más. Se sentó
+en la cama, y agarrándose la cabeza con las manos, Adam lloró. 
 
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un

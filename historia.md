@@ -54,5 +54,11 @@ romper el ciclo o abrazarlo.
 ## Capítulo 11: El ciclo continúa
 La elección desató una fuerza silenciosa. La luz lo envolvió y luego, oscuridad.
 Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
-cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
-allí.
+cortinas raídas. Afuera, el bosque cantaba. Una voz lo llamó desde afuera, real 
+y nítida, no como un pensamiento, sino como una presencia viva.
+
+Adam salió con cautela; el barro fresco mostraba huellas recientes, alguien más 
+había estado allí.Encontró el diario intacto, con una nueva advertencia en tinta
+roja: “Esta vez recuerda”.Sintió que una fuerza desconocida quería revelarle la 
+verdad, romper el ciclo de olvido y engaño.El aire se enfrió; al mirar el cielo, 
+vio una grieta luminosa abriéndose entre las nubes oscuras.

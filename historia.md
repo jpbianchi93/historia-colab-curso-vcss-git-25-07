@@ -52,6 +52,11 @@ El extraño murmuró unas palabras que Adam no comprendió, y un pasaje secreto 
 Del otro lado, una tenue luz azul iluminaba paredes cubiertas de símbolos familiares.  
 Adam sintió un escalofrío recorrerle la espalda: algo en ese lugar conocía su verdadero origen.  
 
+Cada paso que daba resonaba en las humedas paredes de la cueva, el olor amizclado le invadía la nariz.
+Cuanto más se adentraba, más lo sentía. Un peso en su cuerpo, que parecía correr por sus venas y meterse en sus huesos.
+Murmullos comenzaron a hacer eco en la penumbra, como si la cueva estuviese intentando comunicarse con él.
+Entendió, entonces, que aquel lugar era parte de él. Algo los unía, ¿Qué? No sabía. Pero necesitaba quedarse para averiguarlo.
+
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes
 había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás

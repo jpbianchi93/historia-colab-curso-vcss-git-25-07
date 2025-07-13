@@ -54,11 +54,17 @@ romper el ciclo o abrazarlo.
 ## Capítulo 11: El ciclo continúa
 La elección desató una fuerza silenciosa. La luz lo envolvió y luego, oscuridad.
 Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
-cortinas raídas. Afuera, el bosque cantaba. Una voz lo llamó desde afuera, real 
-y nítida, no como un pensamiento, sino como una presencia viva.
+cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
+hasta allí.
 
-Adam salió con cautela; el barro fresco mostraba huellas recientes, alguien más 
-había estado allí.Encontró el diario intacto, con una nueva advertencia en tinta
-roja: “Esta vez recuerda”.Sintió que una fuerza desconocida quería revelarle la 
-verdad, romper el ciclo de olvido y engaño.El aire se enfrió; al mirar el cielo, 
-vio una grieta luminosa abriéndose entre las nubes oscuras.
+Adam se levantó más rápido que otras veces. El entumecimiento aún estaba allí, 
+pero algo era distinto. Sus pasos lo llevaron al rincón donde antes no había nada: 
+ahora, había una llave oxidada en el suelo.Al tomarla, una visión fugaz lo sacudió: 
+un portal, una promesa, y una traición aún sin saldar. El ciclo volvía a empezar, 
+pero esta vez, algo había fracturado el círculo del olvido eterno.
+
+El diario seguía allí, limpio, seco, con una nueva frase escrita con tinta roja: 
+“Esta vez recuerda”. Adam sintió que algo o alguien quería que lo supiera todo, 
+sin más ciclos, sin más engaños. El aire se volvió más frío, y al mirar al cielo, 
+descubrió una grieta luminosa rompiendo las nubes. Con la llave en el bolsillo y 
+el eco de su nombre aún vibrando, Adam dio el primer paso hacia el fin.

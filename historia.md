@@ -44,7 +44,12 @@ de Adam evitaron cualquier tipo de conversacion, hasta que finalmente el extrañ
 "Estoy seguro que sabes lo que esa marca significa, solo que no quieres o no puedes
 recordarlo todavía", exclamó el extraño. En ese momento Adam sintió un escalofrío recorriendo
 por su cuerpo y pensó "Este hombre estará intentando engañarme? tengo recuerdos vagos acerca 
-de muchas cosas, y si realmente tiene razón? y si sé que significa esta marca? debo recordarlo".
+de muchas cosas, pero esta marca me da una sensación familiar", mientras tocaba su marca.
+
+La marca en su brazo comenzó a arder levemente, luego a brillar con un pulso rítmico y envolvente,
+como un eco que no venía del cuerpo, sino del bosque mismo, el extraño dió un paso atrás, sin
+sorpresa, y con una voz grave y tranquila murmuró: “Te lo dije, la marca te está llamando”, y Adam
+aprovechando la quietud del extraño, echó a correr, confundido, hacia el bosque sin mirar atrás.
 
 ## Capítulo 08: El umbral prohibido
 Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en

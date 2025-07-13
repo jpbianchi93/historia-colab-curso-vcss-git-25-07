@@ -28,8 +28,11 @@ llevaba su nombre, y una frase subrayada lo hizo temblar: “No confíes en ello
 
 ## Capítulo 03: Sombras en la niebla
 A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los
-árboles, y una figura difusa lo observaba en silencio. No tenía rostro, pero su
-presencia lo perseguía incluso con los ojos cerrados.
+árboles, y una figura difusa lo observaba en silencio.No tenía rostro, pero su sombra se grababa en su mente sin descanso.
+La figura se desvanecía entre la niebla densa y fría,  
+mientras el silencio se rompía con susurros lejanos,  
+un escalofrío recorrió su espalda sin previo aviso,  
+y la duda se volvió compañera inseparable en la oscuridad.
 
 ## Capítulo 04: El aliado inesperado
 Cuando creyó que no saldría del bosque, una figura emergió de entre los árboles.

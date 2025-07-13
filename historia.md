@@ -57,7 +57,14 @@ Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
 cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
 hasta allí.
 
-Adam se levantó más rápido que otras veces. El entumecimiento aún estaba allí, pero algo era
-distinto. Sus pasos lo llevaron al rincón donde antes no había nada: ahora, había una llave oxidada
-en el suelo.Al tomarla, una visión fugaz lo sacudió: un portal, una promesa, y una traición aún sin
-saldar. El ciclo se repetía, sí, pero esta vez, algo había dejado una grieta en la rueda del olvido.
+Adam se levantó más rápido que otras veces. El entumecimiento aún estaba allí, 
+pero algo era distinto. Sus pasos lo llevaron al rincón donde antes no había nada: 
+ahora, había una llave oxidada en el suelo.Al tomarla, una visión fugaz lo sacudió: 
+un portal, una promesa, y una traición aún sin saldar. El ciclo volvía a empezar, 
+pero esta vez, algo había fracturado el círculo del olvido eterno.
+
+El diario seguía allí, limpio, seco, con una nueva frase escrita con tinta roja: 
+“Esta vez recuerda”. Adam sintió que algo o alguien quería que lo supiera todo, 
+sin más ciclos, sin más engaños. El aire se volvió más frío, y al mirar al cielo, 
+descubrió una grieta luminosa rompiendo las nubes. Con la llave en el bolsillo y 
+el eco de su nombre aún vibrando, Adam dio el primer paso hacia el fin.

@@ -78,6 +78,12 @@ Entonces lo entendió: los sueños no eran simples fragmentos, sino advertencias
 
 Cada noche, el bosque parecía volverse más denso, más oscuro, como si se alimentara de los recuerdos de Adam. Le mostraba fragmentos de su pasado enterrado, escenas confusas pero cargadas de una urgencia silenciosa. Eran retazos que su mente había intentado olvidar, pero que ahora emergían con fuerza, empujados por algo más allá de su voluntad. Sabía que no eran simples sueños: el bosque le hablaba, le advertía, le exigía recordar antes de que fuera demasiado tarde.
 
+Al amanecer, Adam se encontró caminando sin rumbo, guiado por una fuerza que no comprendía.
+Sus pasos lo llevaron a una colina donde el aire parecía más espeso, casi cargado de memoria.
+Allí, entre la niebla, vio por primera vez al extraño: un hombre de rostro pálido y mirada esquiva.
+No sabía de dónde venía, pero algo en su presencia le resultaba inquietantemente familiar.
+Había en él una sombra parecida a la de los sueños, como si también cargara con un pasado roto.
+
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con
 temor al ver una marca en el brazo de Adam, como si reconociera en ella algo

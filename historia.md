@@ -63,9 +63,26 @@ Al fondo, donde la oscuridad era más densa cayó en un sueño profundo.
 
 
 ## Capítulo 06: Fragmentos de memoria
-Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un
-rostro que le suplicaba. Adam despertaba sudando, con el eco de un nombre en los
-labios que no lograba recordar del todo.
+Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota,
+un rostro que le suplicaba. Adam despertaba sudando, con las imágenes ardiendo
+en su mente, como brasas que no lograba apagar.
+
+El temblor en sus manos lo obligó a incorporarse, con el corazón desbocado.
+Aún podía escuchar el susurro de aquella voz entre los árboles, llamándolo
+por un nombre que no recordaba, pero que parecía encender algo en su interior.
+
+Cerró los ojos y trató de volver a dormirse, pero las imágenes no lo dejaban en paz. 
+Una silueta envuelta en sombras extendía su mano hacia él, pidiéndole algo. 
+Su rostro era difuso, pero la sensación de culpa lo inundaba.
+Entonces lo entendió: los sueños no eran simples fragmentos, sino advertencias.
+
+Cada noche, el bosque parecía volverse más denso, más oscuro, como si se alimentara de los recuerdos de Adam. Le mostraba fragmentos de su pasado enterrado, escenas confusas pero cargadas de una urgencia silenciosa. Eran retazos que su mente había intentado olvidar, pero que ahora emergían con fuerza, empujados por algo más allá de su voluntad. Sabía que no eran simples sueños: el bosque le hablaba, le advertía, le exigía recordar antes de que fuera demasiado tarde.
+
+Al amanecer, Adam se encontró caminando sin rumbo, guiado por una fuerza que no comprendía.
+Sus pasos lo llevaron a una colina donde el aire parecía más espeso, casi cargado de memoria.
+Allí, entre la niebla, vio por primera vez al extraño: un hombre de rostro pálido y mirada esquiva.
+No sabía de dónde venía, pero algo en su presencia le resultaba inquietantemente familiar.
+Había en él una sombra parecida a la de los sueños, como si también cargara con un pasado roto.
 
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con

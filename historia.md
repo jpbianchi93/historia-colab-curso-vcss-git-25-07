@@ -33,8 +33,29 @@ presencia lo perseguía incluso con los ojos cerrados.
 
 ## Capítulo 04: El aliado inesperado
 Cuando creyó que no saldría del bosque, una figura emergió de entre los árboles.
-"Si quieres vivir, sígueme", dijo el desconocido. Adam dudó, pero el miedo pudo
-más.
+
+"Si quieres vivir, sígueme", dijo el desconocido. Adam no entendía nada, pero la
+angustia lo empujó a actuar.
+
+Corrieron entre ramas y raíces sin hablar, apenas respirando. El extraño parecía
+conocer cada sendero oculto del bosque. Adam lo seguía, entre asombro y temor, sin
+saber si iba hacia la salvación o hacia una trampa. Pero algo en su instinto
+le decía que ya no había vuelta atrás.
+
+Los árboles parecían cerrarse detrás de ellos, como si quisieran tragarlos en su oscuridad.  
+El desconocido avanzaba con paso firme, sin mirar atrás ni explicar nada.  
+Adam lo seguía con dificultad, esquivando raíces y ramas que arañaban su rostro.  
+Entonces, el sonido de una cascada cercana rompió el silencio y los guió hacia una abertura oculta entre las rocas.
+
+Se acercaron a la cortina de agua, donde la roca temblaba levemente al contacto con sus manos.  
+El extraño murmuró unas palabras que Adam no comprendió, y un pasaje secreto se abrió.  
+Del otro lado, una tenue luz azul iluminaba paredes cubiertas de símbolos familiares.  
+Adam sintió un escalofrío recorrerle la espalda: algo en ese lugar conocía su verdadero origen.  
+
+Cada paso que daba resonaba en las humedas paredes de la cueva, el olor amizclado le invadía la nariz.
+Cuanto más se adentraba, más lo sentía. Un peso en su cuerpo, que parecía correr por sus venas y meterse en sus huesos.
+Murmullos comenzaron a hacer eco en la penumbra, como si la cueva estuviese intentando comunicarse con él.
+Entendió, entonces, que aquel lugar era parte de él. Algo los unía, ¿Qué? No sabía. Pero necesitaba quedarse para averiguarlo.
 
 ## Capítulo 05: El refugio olvidado
 La cueva detrás de la cascada parecía un santuario escondido. En sus paredes

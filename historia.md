@@ -121,7 +121,23 @@ Había en él una sombra parecida a la de los sueños, como si también cargara 
 ## Capítulo 07: La traición
 La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con
 temor al ver una marca en el brazo de Adam, como si reconociera en ella algo
-peligroso. “Eso no debería estar ahí…”, murmuró.
+peligroso. “Otra vez mas”, murmuró en un suave susurro, "Como aquella vez".
+
+Los recuerdos rotos volvieron con la fuerza de mil caballos, el dolor que le
+produjo intentar controlar su panico se volvio abrumador. La tension se volvio 
+fisica entre Adam y el extraño, las miradas esquivas y la sequedad de la garganta 
+de Adam evitaron cualquier tipo de conversacion, hasta que finalmente el extraño habló.
+
+"Estoy seguro que sabes lo que esa marca significa, solo que no quieres o no puedes
+recordarlo todavía", exclamó el extraño. En ese momento Adam sintió un escalofrío recorriendo
+por su cuerpo y pensó "Este hombre estará intentando engañarme? tengo recuerdos vagos acerca 
+de muchas cosas, pero esta marca me da una sensación familiar", mientras tocaba su marca.
+
+La marca en su brazo comenzó a arder levemente, luego a brillar con un pulso rítmico y envolvente,
+como un eco que no venía del cuerpo, sino del bosque mismo, el extraño dió un paso atrás, sin
+sorpresa, y con una voz grave y tranquila murmuró: “Te lo dije, la marca te está llamando”. Aprovechando la quietud del extraño Adam echó a correr hacia el bosque sin mirar atrás.
+
+El silencio del bosque era inquietante, y el aroma de la tierra húmeda le indicaba que cerca corría un arroyo, era bueno saberlo. De repente algo llamó su atención, ¿Un insecto en la corteza del arbol? No, esto era diferente. Se acercó al árbol y sin pensar apoyó la mano sobre el símbolo tallado en el árbol, el mismo que brillaba en su brazo. 
 
 ## Capítulo 08: El umbral prohibido
 Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en

@@ -71,10 +71,10 @@ Murmullos comenzaron a hacer eco en la penumbra, como si la cueva estuviese inte
 Entendió, entonces, que aquel lugar era parte de él. Algo los unía, ¿Qué? No sabía. Pero necesitaba quedarse para averiguarlo.
 
 ## Capítulo 05: El refugio olvidado
-El extraño guió a Adam por un sendero oculto hasta llegar a una inmensa cascada. Al rodear
-el gran caudal de agua, llegaron a una cueva, la cual parecía un santuario escondido. 
-En sus paredes había símbolos y dibujos que despertaban algo en su memoria. “Aquí estarás
-seguro… por ahora”, murmuró el hombre, mientras corría una roca para cerrar la entrada.
+Adam se adentró más en la cueva, impulsado por una fuerza que no entendía pero sentía propia.
+El extraño, en silencio, cerró la entrada tras ellos, como si supiera que ya no habría marcha atrás.
+Las paredes cubiertas de símbolos pulsaban con una luz tenue que parecía reconocerlo.
+No era solo un refugio: era un eco de sí mismo, un lugar que lo estaba esperando desde antes de que lo olvidara.
 
 Un leve murmullo resonaba entre las paredes húmedas, como si la cueva respirara.
 Ella se acercó a una de las inscripciones, y al tocarla, un resplandor tenue iluminó el sitio.
@@ -91,10 +91,11 @@ El resplandor dejó una imagen grabada en su mente: una figura gritando en un id
 Intentó alejar la visión pero el eco del grito lo seguía, vibrando en lo más profundo de su ser.
 Al abrir los ojos, estaba solo. El extraño había desaparecido sin dejar rastro alguno.
 
-Al darse vuelta descubre que el resplandor es ahora aún más intenso.
+Al darse vuelta, descubrió que el resplandor era ahora aún más intenso.
 Un impulso inexplicable lo guiaba a acercarse cada vez más. Llegó a tocarlo con la punta de
-los dedos, y subitamente Adam despertó. El mismo sueño recurrente, una vez más. Se sentó
-en la cama, y agarrándose la cabeza con las manos, Adam lloró. 
+los dedos y súbitamente todo se desvaneció.
+Adam despertó con el cuerpo empapado en sudor, jadeando, los ecos de la cueva aún retumbando en su mente.
+Una vez más, el mismo sueño. Pero esta vez, sentía que el recuerdo era más real que nunca. 
 
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota,

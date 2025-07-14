@@ -127,4 +127,17 @@ romper el ciclo o abrazarlo.
 La elección desató una fuerza silenciosa. La luz lo envolvió y luego, oscuridad.
 Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
 cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
-allí.
+allí. 
+Adam se levantó más rápido que otras veces. El entumecimiento aún estaba allí, 
+pero algo era distinto. Sus pasos lo llevaron al rincón donde antes no había nada: 
+ahora, había una llave oxidada en el suelo.Al tomarla, una visión fugaz lo sacudió: 
+un portal, una promesa, y una traición aún sin saldar. El ciclo volvía a empezar, 
+pero esta vez, algo había fracturado el círculo del olvido eterno.
+El diario seguía allí, limpio, seco, con una nueva frase escrita con tinta roja: 
+“Esta vez recuerda”. Adam sintió que algo o alguien quería que lo supiera todo, 
+sin más ciclos, sin más engaños. El aire se volvió más frío, y al mirar al cielo, 
+descubrió una grieta luminosa rompiendo las nubes. Con la llave en el bolsillo y 
+el eco de su nombre aún vibrando, Adam dio el primer paso hacia el fin.
+Salió a caminar en busca de respuestas. El bosque otoñal era amplio y tibio a la vez.
+Una bruma lo cegaba. Ahora estaba inmóvil ante esa inmensidad que lo atravesaba. 
+Cuando por fin logró mover su cuerpo, sintió una voz murmurando. Súbitamente múltiples voces. Misteriosamente provenían desde su interior, era él otra vez.

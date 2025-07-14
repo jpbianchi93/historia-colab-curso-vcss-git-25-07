@@ -27,12 +27,14 @@ Siguiéndolas, Adam encontró un viejo diario cubierto de barro. La portada
 llevaba su nombre, y una frase subrayada lo hizo temblar: “No confíes en ellos”.
 
 ## Capítulo 03: Sombras en la niebla
-A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los árboles, y una figura
-difusa lo observaba en silencio. No tenía rostro, pero su presencia lo inquietaba cada vez más.
+A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los árboles,
+y una figura difusa lo observaba en silencio. No tenía rostro, pero sentía que lo seguía
+incluso cuando intentaba convencerse de que no había nada allí.
 
-Cada paso lo hacía dudar. Sentía ojos que no podía ver, clavados en su espalda. De pronto, una figura
-alta emergió entre la niebla. Inmóvil. Sin rostro. El miedo lo inmovilizó. Ya no sabía qué era real
-y qué formaba parte de su mente alterada por el silencio y el frío.
+Se detuvo. El crujido de las hojas no venía de sus pasos. Alguien más estaba cerca.
+Giró lentamente, pero solo encontró niebla y sombras entre los troncos.
+El corazón le golpeaba el pecho, como queriendo escapar antes que él.
+Una respiración ajena vibraba en el aire, detrás suyo.
 
 ## Capítulo 04: El aliado inesperado
 Cuando creyó que no saldría del bosque, una figura emergió de entre los árboles.
